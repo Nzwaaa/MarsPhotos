@@ -4,5 +4,10 @@
 
 ![WhatsApp Image 2024-11-29 at 19 14 57_45834e98](https://github.com/user-attachments/assets/d61c428f-5598-412c-8e11-4ec86a137899)
 
+
+
+
+
+
 Saat jaringan Internet Dinonaktifkan
 ![WhatsApp Image 2024-11-29 at 19 14 57_7516379c](https://github.com/user-attachments/assets/22697f9d-2ea1-4260-afdb-fb139fbef787)
